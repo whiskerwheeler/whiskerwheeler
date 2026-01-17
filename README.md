@@ -1,6 +1,6 @@
 <div align="center">
 
-<img width="400" height="400" alt="mike&will" src="https://files.catbox.moe/fb3xbb.png" />
+<img src="https://i.pinimg.com/originals/80/2c/4b/802c4b7e3a0bc26cd8851b28f7a0dc90.gif" style="max-width: 450%; "/></p>
 
 dni⠀majority⠀of⠀st⠀fandom,⠀the⠀bulk⠀of⠀you⠀are⠀insufferable 
 
