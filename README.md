@@ -2,7 +2,7 @@
 
 <img src="https://i.pinimg.com/originals/80/2c/4b/802c4b7e3a0bc26cd8851b28f7a0dc90.gif" style="max-width: 450%; "/></p>
 
-dni⠀majority⠀of⠀st⠀fandom,⠀the⠀bulk⠀of⠀you⠀are⠀insufferable 
+no⠀dni⠀besides⠀basic⠀criteria,⠀i'll⠀decide⠀if⠀you're⠀a⠀freak⠀myself
 
 <ins>w2i</ins>⠀as⠀i⠀am⠀frequently⠀off-tab
 
