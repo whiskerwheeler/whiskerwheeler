@@ -4,6 +4,6 @@
 
 no⠀dni⠀besides⠀basic⠀criteria,⠀i'll⠀decide⠀if⠀you're⠀a⠀freak⠀myself
 
-<ins>w2i</ins>⠀as⠀i⠀am⠀frequently⠀off-tab
+please⠀<ins>w2i</ins>⠀as⠀i⠀am⠀frequently⠀off-tab
 
 [rentry](https://rentry.co/whiskerwheeler)⠀&⠀[atabook](https://whiskerwheeler.atabook.org/)
